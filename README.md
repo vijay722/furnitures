@@ -1,1 +1,2 @@
-https://vijay722.github.io/furnitures/ this site server
+https://vijay722.github.io/furnitures/
+website link
